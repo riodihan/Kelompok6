@@ -1,0 +1,1 @@
+# Semangat ngejakannya ya temans
